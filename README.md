@@ -1,1 +1,0 @@
-# EYZWG9-Komputergrafika-s-k-pfeldolgoz-s
